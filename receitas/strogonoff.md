@@ -11,6 +11,7 @@
 - 1 dose de cachaça
 - champignon
 - pimenta do reino
+- 1 cebola
 
 
 
@@ -18,7 +19,7 @@
 
 1. Primeiramente tempera a carne com sal e pimenta do reio a gosto com bom tempo de antecedência.
 2. Pegue uma panela e a esquente no fogo, quando bem quente, adicione a manteiga e o azeite e em seguida a carne, a selando de todos os lados. 
-3. 
+3.  
 
 
 
